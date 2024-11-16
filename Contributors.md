@@ -1,4 +1,7 @@
 # Contributors
+
+-Hello👋 This is Kumar Raunak (https://github.com/SatanS-CL4W)
+
 -Hello there my name is Chard (https://github.com/ChardPeterz)
 -hello the gran man is in the HOUSE! gran (https://github.com/granman3)
 -Hello!! I am [Zafar](https://github/zafar205)
